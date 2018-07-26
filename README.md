@@ -1,6 +1,6 @@
 # Boggles
 
-Shannon is taller than Simran
+Shannon's a dickhead
 
 	End of story
 
